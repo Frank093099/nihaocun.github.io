@@ -4,7 +4,7 @@ layout: default
 
 Kirby Assistant
 
-[下载地址][https://www.coolapk.com/game/com.kirby.runanjing]
+[下载地址](https://www.coolapk.com/game/com.kirby.runanjing)
 
 >Kirby Assistant（原kirby download）
 
