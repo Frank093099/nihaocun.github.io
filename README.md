@@ -1,5 +1,5 @@
 
-#Kirby Assistant
+Kirby Assistant
 =========
 [下载地址](https://www.coolapk.com/game/com.kirby.runanjing)
 
@@ -18,7 +18,7 @@
 100%攻略   流畅通关<br>
 
 
-#联系方式
+联系方式
 =========
 E-mail|**nihaocun@163.com**<br>
 酷安**@汝南京**<br>
