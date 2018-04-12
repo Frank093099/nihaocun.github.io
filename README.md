@@ -17,8 +17,9 @@
 ```
 
 ## 联系方式
-*E-mail**nihaocun@163.com**
--酷安**@汝南京**
-*百度贴吧**@汝南京**
--QQ**2323355219**
-*Twitter**@niahocun**
+
+* E-mail**nihaocun@163.com**
+- 酷安**@汝南京**
+* 百度贴吧**@汝南京**
+- QQ**2323355219**
+* Twitter**@niahocun**
