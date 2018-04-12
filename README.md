@@ -5,7 +5,7 @@
 * [Kirby Assistant](#Kirby Assistant)
 
 ## Kirby Assistant
-[KA_logo](http://image.coolapk.com/apk_logo/2018/0213/ic_launcher-133239-o_1c671uaqnjbr6d122gi6ku6q-uid-651880@512x512.png）
+[KA_logo](http://image.coolapk.com/apk_logo/2018/0213/ic_launcher-133239-o_1c671uaqnjbr6d122gi6ku6q-uid-651880@512x512.png"Kirby Assistant"）
 
 [下载地址](https://www.coolapk.com/game/com.kirby.runanjing)
 ```
@@ -15,11 +15,11 @@
 作弊代码    助你畅玩  
 100%攻略   流畅通关  
 ```
-===============================
+
 
 ###联系方式
 *E-mail**nihaocun@163.com**
--酷安**@汝南京**
+*酷安**@汝南京**
 *百度贴吧**@汝南京**
--QQ**2323355219**
+*QQ**2323355219**
 *Twitter**@niahocun**
