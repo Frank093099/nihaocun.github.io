@@ -4,7 +4,7 @@
 ## APP列表
 * [Kirby Assistant](#Kirby Assistant)
 
-![ks-logo](https://raw.githubusercontent.com/nihaocun/nihaocun.github.io/master/image/ka_logo.png）
+![ka-logo](https://raw.githubusercontent.com/nihaocun/nihaocun.github.io/master/image/ka_logo.png "ka_logo"）
 ## Kirby Assistant
 [下载地址](https://www.coolapk.com/game/com.kirby.runanjing)
 ```
