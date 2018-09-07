@@ -1,6 +1,3 @@
-独舞的蓝精灵
-========================
-
 
 [诵读《山峦》文：独舞的蓝精灵‖诵：桃子](https://mp.weixin.qq.com/s/QU89PwQXSmxYqzP9KcTQUw)  
 
