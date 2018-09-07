@@ -21,4 +21,8 @@
 
 [诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
 
+[【长安风.山之恋分社】《开学了》(组诗) 文：山风‖诵：大魏哥](https://mp.weixin.qq.com/s/c3zBH1pMkc41ekljNeLl3A)  
+
+[七夕 丨 陕西诗人为你写诗](https://mp.weixin.qq.com/s/NGEfNjqY4zbQgLA6IQn7jQ)  
+
 
