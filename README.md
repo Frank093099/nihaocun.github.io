@@ -15,4 +15,41 @@
 
 [诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
 
-[【诗海遨游】家乡的河 心中的歌](https://mp.weixin.qq.com/s/C6v2rH6imwdm8xKHAbBINQ)  
+[你是老师——写在教师节前夕‖黄真](https://mp.weixin.qq.com/s/65iEEQh2EfzI3XSo1pObfQ)  
+
+[第九期入选作品：黄真《夏天（组诗）》](https://mp.weixin.qq.com/s/gi_2HwAerXNrl7KtCXb2iw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
+[诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
+
