@@ -25,4 +25,6 @@
 
 [七夕 丨 陕西诗人为你写诗](https://mp.weixin.qq.com/s/NGEfNjqY4zbQgLA6IQn7jQ)  
 
+[【长安风分社】《听蝉》文：独舞的蓝精灵‖诵：紫菱菱](https://mp.weixin.qq.com/s/UCdbEiml2cNt0OjxPhXDgw)  
+
 
